@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Pd834
+- 👀 I’m interested in Data Analyst
+- 🌱 I’m currently learning B.Tech Information Technology
